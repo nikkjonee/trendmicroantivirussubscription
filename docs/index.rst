@@ -1,4 +1,4 @@
-How Do I Renew My Trend Micro Antivirus Subscription Online?
+How to Renew My Trend Micro Antivirus Subscription Online?
 ============================================
 .
 .
